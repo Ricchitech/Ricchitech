@@ -1,4 +1,4 @@
-### Hi there, I'm Bharathraj - Gowda [Ricchitech]
+### Hi there, I'm Bharathraj Gowda [Ricchitech]
 
 ## I'm a Developer and Photographer!!
 
